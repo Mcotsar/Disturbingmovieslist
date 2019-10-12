@@ -31,6 +31,5 @@
 29. [Crash (David Cronenberg)](https://www.filmaffinity.com/es/film874087.html)
 30. [Videodrome (David Cronenberg)](https://www.filmaffinity.com/es/film741689.html)
 31. [La edad de oro (Luis Buñuel)](https://www.filmaffinity.com/es/film943343.html)
-
-
+32. [We need to talk about Kevin](https://www.filmaffinity.com/es/film504482.html)
 
