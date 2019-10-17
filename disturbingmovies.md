@@ -33,4 +33,7 @@
 31. [La edad de oro (Luis Buñuel)](https://www.filmaffinity.com/es/film943343.html)
 32. [We need to talk about Kevin (Lynne Ramsay)](https://www.filmaffinity.com/es/film504482.html)
 33. [The invitation (Karyn Kusama)](https://www.filmaffinity.com/es/film779556.html)
-
+34. [The Neon Demon (Nicolas Winding Refn)](https://www.filmaffinity.com/es/film522774.html)
+35. [Pink Flamingos (Jonh Waters)](https://www.filmaffinity.com/es/film863782.html)
+36. [Stalker (Andrei Tarkovsky)](https://www.filmaffinity.com/es/film534365.html)
+37. [Grave (Julia Ducournau)](https://www.filmaffinity.com/es/film252645.html)
