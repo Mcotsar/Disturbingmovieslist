@@ -26,7 +26,7 @@
 24. [Antichrist (Lars Von Trier)](https://www.filmaffinity.com/es/film917722.html)
 25. [City of Life and Death (Lu Chuan)](https://www.filmaffinity.com/es/film261464.html)
 26. [Midsommar (Ari Aster)](https://www.filmaffinity.com/es/film599419.html)
-27. [Possession (1981)(Andrzej Zulawski)](https://www.filmaffinity.com/es/film713191.html)
+27. [Possession (Andrzej Zulawski)](https://www.filmaffinity.com/es/film713191.html)
 28. [The Human Centipede (Tom Six)](https://www.filmaffinity.com/es/film112220.html)
 29. [Crash (David Cronenberg)](https://www.filmaffinity.com/es/film874087.html)
 30. [Videodrome (David Cronenberg)](https://www.filmaffinity.com/es/film741689.html)
