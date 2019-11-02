@@ -38,3 +38,11 @@
 36. [Stalker (Andrei Tarkovsky)](https://www.filmaffinity.com/es/film534365.html)
 37. [Grave (Julia Ducournau)](https://www.filmaffinity.com/es/film252645.html)
 38. [Gerald's Game (Mike Flanagan)](https://www.filmaffinity.com/es/film905912.html)
+39. [Begotten (E. Elias Merhige)](https://www.filmaffinity.com/es/film825956.html)
+40. [La Residencia (Chicho Ibáñez)](https://www.filmaffinity.com/es/film308461.html)
+41. [The Seventh Seal (Bergman)](https://www.filmaffinity.com/es/film723978.html)
+42. [Smultronstället (Fresas Salvajes) (Bergman)](https://www.filmaffinity.com/es/film924464.html)
+43. [Order (Dreyer)](https://www.filmaffinity.com/es/film489524.html)
+
+
+
