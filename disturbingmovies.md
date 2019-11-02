@@ -37,3 +37,4 @@
 35. [Pink Flamingos (Jonh Waters)](https://www.filmaffinity.com/es/film863782.html)
 36. [Stalker (Andrei Tarkovsky)](https://www.filmaffinity.com/es/film534365.html)
 37. [Grave (Julia Ducournau)](https://www.filmaffinity.com/es/film252645.html)
+38. [Gerald's Game (Mike Flanagan)](https://www.filmaffinity.com/es/film905912.html)
