@@ -43,6 +43,7 @@
 41. [The Seventh Seal (Bergman)](https://www.filmaffinity.com/es/film723978.html)
 42. [Smultronstället (Fresas Salvajes) (Bergman)](https://www.filmaffinity.com/es/film924464.html)
 43. [Order (Dreyer)](https://www.filmaffinity.com/es/film489524.html)
+44. [The man who laughs](https://www.filmaffinity.com/es/film207881.html)
 
 
 
