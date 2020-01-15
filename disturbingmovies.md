@@ -44,6 +44,6 @@
 42. [Smultronstället (Fresas Salvajes) (Bergman)](https://www.filmaffinity.com/es/film924464.html)
 43. [Order (Dreyer)](https://www.filmaffinity.com/es/film489524.html)
 44. [The man who laughs (Paul Leni)](https://www.filmaffinity.com/es/film207881.html)
-45. [Gisaengchung (Parasite)](https://www.filmaffinity.com/es/film520465.html)
-
+45. [Gisaengchung (Parasite)(Bong Joon-ho)](https://www.filmaffinity.com/es/film520465.html)
+46. [The Lighthouse (Robert Eggers)](https://www.filmaffinity.com/es/film824461.html)
 
