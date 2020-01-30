@@ -46,4 +46,7 @@
 44. [The man who laughs (Paul Leni)](https://www.filmaffinity.com/es/film207881.html)
 45. [Gisaengchung (Parasite)(Bong Joon-ho)](https://www.filmaffinity.com/es/film520465.html)
 46. [The Lighthouse (Robert Eggers)](https://www.filmaffinity.com/es/film824461.html)
+47. [May (Lucky McKee)](https://www.filmaffinity.com/es/search.php?stype=title&stext=may)
+48. [Belle de Jour (Luis Buñuel)](https://www.filmaffinity.com/es/film601862.html)
+49. [Dans ma peau (Marina de Van)](https://www.filmaffinity.com/es/film385634.html)
 
