@@ -49,4 +49,5 @@
 47. [May (Lucky McKee)](https://www.filmaffinity.com/es/search.php?stype=title&stext=may)
 48. [Belle de Jour (Luis Buñuel)](https://www.filmaffinity.com/es/film601862.html)
 49. [Dans ma peau (Marina de Van)](https://www.filmaffinity.com/es/film385634.html)
+50. [Gone Girl (David Fincher)](https://www.filmaffinity.com/es/film478104.html)
 
