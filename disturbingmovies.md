@@ -50,4 +50,6 @@
 48. [Belle de Jour (Luis Buñuel)](https://www.filmaffinity.com/es/film601862.html)
 49. [Dans ma peau (Marina de Van)](https://www.filmaffinity.com/es/film385634.html)
 50. [Gone Girl (David Fincher)](https://www.filmaffinity.com/es/film478104.html)
+51. [Elle (Paul Verhoeven)](https://www.filmaffinity.com/es/film765960.html)
+52. [Les yeux sans visage (Georges Franju)](https://www.filmaffinity.com/es/film368901.html)
 
