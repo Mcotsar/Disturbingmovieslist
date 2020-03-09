@@ -52,4 +52,6 @@
 50. [Gone Girl (David Fincher)](https://www.filmaffinity.com/es/film478104.html)
 51. [Elle (Paul Verhoeven)](https://www.filmaffinity.com/es/film765960.html)
 52. [Les yeux sans visage (Georges Franju)](https://www.filmaffinity.com/es/film368901.html)
+53. [Children of the Corn (Fritz Kiersch)](https://www.filmaffinity.com/es/film503725.html)
+54. [Hard Candy (David Slade)](https://www.filmaffinity.com/es/film752731.html)
 
