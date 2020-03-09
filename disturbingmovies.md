@@ -16,7 +16,7 @@
 14. [Johnny got his gun (Dalton Trumbo)](https://www.filmaffinity.com/es/film746268.html)
 15. [Canino (Lanthimos)](https://www.filmaffinity.com/es/film270437.html)
 16. [Funny Games (Haneke)](https://www.filmaffinity.com/es/film315125.html)
-17. [The Pianist (Haneke)](https://www.filmaffinity.com/es/film112475.html)
+17. [La pianiste (Haneke)](https://www.filmaffinity.com/es/film112475.html)
 18. [Holocausto Canibal (Deodato)](https://www.filmaffinity.com/es/film699569.html)
 19. [Lilja 4-ever (Lukas Moodysson)](https://www.filmaffinity.com/es/film220492.html)
 20. [A Serbian Film (Srđan Spasojević)](https://www.filmaffinity.com/es/film658584.html)
