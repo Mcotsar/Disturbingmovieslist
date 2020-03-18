@@ -54,4 +54,6 @@
 52. [Les yeux sans visage (Georges Franju)](https://www.filmaffinity.com/es/film368901.html)
 53. [Children of the Corn (Fritz Kiersch)](https://www.filmaffinity.com/es/film503725.html)
 54. [Hard Candy (David Slade)](https://www.filmaffinity.com/es/film752731.html)
+55. [Persona (Bergman)](https://www.filmaffinity.com/es/film878836.html)
+56 [Fanny and Alexander (Bergman)](https://www.filmaffinity.com/es/film353403.html)
 
