@@ -57,4 +57,5 @@
 55. [Persona (Bergman)](https://www.filmaffinity.com/es/film878836.html)
 56. [Fanny and Alexander (Bergman)](https://www.filmaffinity.com/es/film353403.html)
 57. [The Platform (Galder Gaztelu-Urrutia)](https://www.filmaffinity.com/es/film427424.html)
+58. [A Cure for Wellness (Gore Verbinski)](https://www.filmaffinity.com/es/film454394.html)
 
