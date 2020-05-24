@@ -59,4 +59,5 @@
 57. [The Platform (Galder Gaztelu-Urrutia)](https://www.filmaffinity.com/es/film427424.html)
 58. [A Cure for Wellness (Gore Verbinski)](https://www.filmaffinity.com/es/film454394.html)
 59. [The Perfection (Richard Shepard)](https://www.filmaffinity.com/es/film716699.html)
+60. [The Golem (Doron Paz, Yoav Paz)](https://www.filmaffinity.com/es/film346114.html)
 
