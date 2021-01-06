@@ -65,4 +65,6 @@
 63. [Let the Right One In (Tomas Alfredson)](https://www.filmaffinity.com/es/film666185.html)
 64. [Shame (Steve McQueen)](https://www.filmaffinity.com/es/film359325.html)
 65. [Cube (Vincenzo Natali)](https://www.filmaffinity.com/es/film741341.html)
+66. [Ventajas de viajar en tren (Aritz Moreno)](https://www.filmaffinity.com/es/film795401.html)
+67. [Melancholia (Lars Von Trier)](https://www.filmaffinity.com/es/film131917.html)
 
