@@ -67,4 +67,8 @@
 65. [Cube (Vincenzo Natali)](https://www.filmaffinity.com/es/film741341.html)
 66. [Ventajas de viajar en tren (Aritz Moreno)](https://www.filmaffinity.com/es/film795401.html)
 67. [Melancholia (Lars Von Trier)](https://www.filmaffinity.com/es/film131917.html)
+68. [Hereditary (Ari Aster)](https://www.filmaffinity.com/es/film118012.html)
+69. [Teorema (Pasolini)](https://www.filmaffinity.com/es/search.php?stext=teorema)
+70. [The Golden Glove (Fatih Akin)](https://www.filmaffinity.com/es/film318878.html)
+71. [Old Boy (Park Chan-wook)](https://www.filmaffinity.com/es/film262430.html)
 
