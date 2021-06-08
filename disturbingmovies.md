@@ -71,4 +71,8 @@
 69. [Teorema (Pasolini)](https://www.filmaffinity.com/es/search.php?stext=teorema)
 70. [The Golden Glove (Fatih Akin)](https://www.filmaffinity.com/es/film318878.html)
 71. [Old Boy (Park Chan-wook)](https://www.filmaffinity.com/es/film262430.html)
+72. [Mother (Andy Muschietti)](https://www.filmaffinity.com/es/film489880.html)
+73. [The Purge (James DeMonaco)](https://www.filmaffinity.com/es/film636016.html)
+74. [The Woman in the Window (Joe Wright)](https://www.filmaffinity.com/es/film789036.html)
+75. [Kadaver (Jarand Breian Herdal)](https://www.filmaffinity.com/es/film891010.html)
 
