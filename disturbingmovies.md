@@ -79,5 +79,5 @@
 77. [Calígula (Tinto Brass)](https://www.filmaffinity.com/es/film250482.html)
 78. [Mother! (Darren Aronofsky)](https://www.filmaffinity.com/es/film594704.html)
 79. [It follows (David Robert Mitchell)](https://www.filmaffinity.com/es/film811561.html)
-80. [Us (Jordan Peele)](ttps://www.filmaffinity.com/es/film511558.html)
+80. [Us (Jordan Peele)](https://www.filmaffinity.com/es/film511558.html)
 81. [His House (Remi Weekes)](https://www.filmaffinity.com/es/film941613.html)
