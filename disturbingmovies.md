@@ -81,3 +81,7 @@
 79. [It follows (David Robert Mitchell)](https://www.filmaffinity.com/es/film811561.html)
 80. [Us (Jordan Peele)](https://www.filmaffinity.com/es/film511558.html)
 81. [His House (Remi Weekes)](https://www.filmaffinity.com/es/film941613.html)
+82. [Sinister (Scott Derrickson)](https://www.filmaffinity.com/es/film262844.html)
+83. [Insidious (James Wan)](https://www.filmaffinity.com/es/film760103.html)
+84. [The babadook (Jennifer Kent)](https://www.filmaffinity.com/es/film287094.html)
+85. [The Woman in the Window (Joe Wright)](https://www.filmaffinity.com/es/film789036.html)
