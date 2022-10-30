@@ -85,3 +85,5 @@
 83. [Insidious (James Wan)](https://www.filmaffinity.com/es/film760103.html)
 84. [The babadook (Jennifer Kent)](https://www.filmaffinity.com/es/film287094.html)
 85. [The Woman in the Window (Joe Wright)](https://www.filmaffinity.com/es/film789036.html)
+86. [Cerdita (Carlota Pereda)](https://www.filmaffinity.com/es/film784729.html)
+87. [The Addiction (Abel Ferrara)](https://www.filmaffinity.com/es/film740305.html)
