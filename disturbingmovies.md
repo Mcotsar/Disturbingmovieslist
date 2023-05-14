@@ -89,3 +89,4 @@
 87. [The Addiction (Abel Ferrara)](https://www.filmaffinity.com/es/film740305.html)
 88. [Lamb (Valdimar Jóhannsson)](https://www.filmaffinity.com/ar/film653884.html)
 89. [El páramo (David Casademunt)](https://www.filmaffinity.com/ar/film787296.html)
+90. [Jerk (Gisèle Vienne)](https://www.filmaffinity.com/ar/film787649.html)
