@@ -87,3 +87,5 @@
 85. [The Woman in the Window (Joe Wright)](https://www.filmaffinity.com/es/film789036.html)
 86. [Cerdita (Carlota Pereda)](https://www.filmaffinity.com/es/film784729.html)
 87. [The Addiction (Abel Ferrara)](https://www.filmaffinity.com/es/film740305.html)
+88. [Lamb (Valdimar Jóhannsson)](https://www.filmaffinity.com/ar/film653884.html)
+89. [El páramo (David Casademunt)](https://www.filmaffinity.com/ar/film787296.html)
