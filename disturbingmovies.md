@@ -91,3 +91,8 @@
 89. [El páramo (David Casademunt)](https://www.filmaffinity.com/ar/film787296.html)
 90. [Jerk (Gisèle Vienne)](https://www.filmaffinity.com/ar/film787649.html)
 91. [Possum (Matthew Holness)](https://www.filmaffinity.com/es/film353775.html)
+92. [The innocents (Eskil Vogt)](https://www.filmaffinity.com/ar/film897184.html)
+93. [Good boy (Viljar Bøe)](https://www.filmaffinity.com/ar/film784785.html)
+94. [The eyes of my mother (Nicolas Pesce)](https://www.filmaffinity.com/ar/film197394.html)
+95. [Nitram (Justin Kurzel)](https://www.filmaffinity.com/ar/film732257.html)
+96. [Midnight runner (Hannes Baumgartner)](https://www.filmaffinity.com/ar/film742447.html)
